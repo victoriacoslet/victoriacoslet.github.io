@@ -1,0 +1,1 @@
+Psihoterapie cognitiv-comportamentală pentru adulți
